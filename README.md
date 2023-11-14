@@ -25,4 +25,4 @@ The story revolves around **Shoya Ishida**, a former elementary school bully who
 ## How to Watch
 The movie is available on various streaming platforms and can be enjoyed by fans of emotional drama and coming-of-age stories.
 
-[Watch "A Silent Voice" Trailer](https://www.netflix.com/watch/80223226?trackId=255824129&tctx=0%2C0%2C5b73d569-68d7-44d7-a6f5-4c277bd8986d-471086022%2C5b73d569-68d7-44d7-a6f5-4c277bd8986d-471086022%7C2%2Cunknown%2C%2C%2CtitlesResults%2C%2CVideo%3A80223226%2CdetailsPagePlayButton)
+[Watch "A Silent Voice"](https://www.netflix.com/watch/80223226?trackId=255824129&tctx=0%2C0%2C5b73d569-68d7-44d7-a6f5-4c277bd8986d-471086022%2C5b73d569-68d7-44d7-a6f5-4c277bd8986d-471086022%7C2%2Cunknown%2C%2C%2CtitlesResults%2C%2CVideo%3A80223226%2CdetailsPagePlayButton)
